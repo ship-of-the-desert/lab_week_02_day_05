@@ -1,4 +1,4 @@
-![](source.gif)
+![](https://media0.giphy.com/media/3og0IyfINFA6Y49ETm/source.gif)
 
 # Game of Zones
 
